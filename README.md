@@ -5,14 +5,18 @@ PROGRAM AT GURUDWARA SAHIB-The Induction Program started with path and shabad ki
 There was a very good arrangement for tea and snacks in front of gurudwara sahib.
 ## 10:00am to 1:30pm 
 It was time for the main program that is the inaugral ceremony in the college auditorium.Er. Ravinder Garg sir was invited as the chief guest for the ceremony. 
+
 Dr.Sehajpal Singh principal gndec,gave us speech and elightened us with his valuable words.
+
 Dr.Harpreet Kaur Gill HOD Applied Sciences,motivated us for our new journey.Her words emphasised on honesty in our life and studies.
+
 Dean Academics Dr. Akshay Girdhar also share his insights with us.
 ## 2:00pm to 4:00pm
 Department Visit-We all were volunteered to our respective departments.There we interacted with our mentors,department heads,examination head and training cell incharge.We were also given a tour of our respective labs.
 # Day 2 1st August 
 ## 9:30am to 11:30am
 English proficiency test-It was a very basic test which included comprehensions,letter and email writing and some grammar part.
+
 Maths proficiency test-It was a simple arithmetic test which i really enojoyed solving!!
 ## 1:00pm to 2:00pm
 It was time for an expert talk by Dr.Arashdeep Singh on the topic "Food:A Pivotal Role in Students Life" in the auditorium.It was a meaningful and interesting lecture as it triggered our bad eating habits as a student.He gave us all insights about the processed food and drinks which are harming our bodies and mind.He gave us really good ideas for the substitute of high sugar processed food.
@@ -35,7 +39,9 @@ Session by causmic club- The members of causmic club told us about thier club an
 # Day 5 5th august
 ## 9:30am to 10:30am and 10:30am to 11:30am and 11:30am to 12:30pm
 English lecture by Prof.Manjot Kaur-She gave us overview about the syllabus and topics to be studied in Proffesional english communication  subject.Then everyone introduced themselves but i didnt got a chance to do so due to less time.
+
 Maths lecture by Prof.Rajbir Kaur-She asked some basic 12level questions which was a recall for our memories.
+
 BEEE Lecture by Prof.Mandeep Kaur- In this lecture we were given notes for basic electrical physics.
 # Day 6 6th august
 ## 9:30am to 10:30am 
