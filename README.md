@@ -8,7 +8,7 @@ It was time for the main program that is the inaugral ceremony in the college au
 
 Dr.Sehajpal Singh principal gndec,gave us speech and elightened us with his valuable words.
 
-Dr.Harpreet Kaur Gill HOD Applied Sciences,motivated us for our new journey.Her words emphasised on honesty in our life and studies.
+Dr.Harpreet Kaur Grewal HOD Applied Sciences,motivated us for our new journey.Her words emphasised on honesty in our life and studies.
 
 Dean Academics Dr. Akshay Girdhar also share his insights with us.
 ## 2:00pm to 4:00pm
@@ -61,4 +61,7 @@ Lecture by Dr.Amit Kamra Incharge Digital Marketing Club-He taught us about the 
 Lecture by Dr.Randhir Singh on "Conduct of Examination"-He gave us information about the examination system in GNDEC and valuable information regarding exams.
 ## 1:30pm to 2:30pm 
 BEEE Lecture by Prof.Mandeep Kaur-She taught us more about electrical physics and we made notes for the same.
+# Day8 8th august
+## 9:00a.m to 12:00p.m
+One of our seniors from the causmic club gave us a long lecture on pps subject.I learnt about dofferent types of loops in programming and other things too.That was the most learnable lecture till now and i really loved his teaching skills.
 
